@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Elisabeth
+- 👀 I’m interested in Data Analysis
+- 🌱 I’m currently learning RStudios
+- 💞️ I’m looking to collaborate on ... not sure yet!
+- 📫 How to reach me ... pending.
